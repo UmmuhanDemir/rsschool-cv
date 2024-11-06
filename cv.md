@@ -1,5 +1,5 @@
 ## Contacts
 
-**Main Email** [dbummuhan@gmail.com](dbummuhan@gmail.com)
+**Email** [dbummuhan@gmail.com](dbummuhan@gmail.com)
 
-**Linkedin:** [https://www.linkedin.com/in/ummuhandemir/](dhttps://www.linkedin.com/in/ummuhandemir/)
+**Linkedin:** [https://www.linkedin.com/in/ummuhandemir/](https://www.linkedin.com/in/ummuhandemir/)
